@@ -1,1 +1,0 @@
-# gyasigma.github.io
